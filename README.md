@@ -1,3 +1,2 @@
-![kép](https://user-images.githubusercontent.com/44841140/167508230-6820d299-639e-4b2c-81fd-5a746854e9e0.png)
-![kép](https://user-images.githubusercontent.com/44841140/167508303-d8758e43-3946-4d90-92ee-fd1ad92513e4.png)
-
+![catmash1](https://user-images.githubusercontent.com/44841140/167508532-8c0bd90d-2b02-41e8-b89c-5d9bc67a00dc.PNG)
+![catmash2](https://user-images.githubusercontent.com/44841140/167508544-233cb7c2-7510-4f0b-b58e-4be184384a48.PNG)
